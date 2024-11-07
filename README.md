@@ -25,7 +25,7 @@ I’m a **2nd-year B.Tech student** at **VIT-AP University** majoring in **CSE A
 - **LinkedIn**: [LinkedIn Profile](www.linkedin.com/in/rudransh-garg-17344a28b)
   
 ## 😄 Pronouns:
-- He/Him
+- She/Her/They/Them
 
 ## ⚡ Fun fact:
 - I love designing, whether it's graphics or web layouts, and I enjoy heading teams for various extra-curricular activities. 
