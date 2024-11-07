@@ -21,7 +21,7 @@ I’m a **2nd-year B.Tech student** at **VIT-AP University** majoring in **CSE A
 - Projects involving **Design and User Interface (UI)**
 
 ## 📫 How to reach me:
-- **Email**: rudransh.garg@email.com 
+- **Email**: gargrudransh1975@gmail.com 
 - **LinkedIn**: [LinkedIn Profile](www.linkedin.com/in/rudransh-garg-17344a28b)
   
 ## 😄 Pronouns:
